@@ -1,1 +1,2 @@
-# bible
+BL EGOIST BIBLE
+
